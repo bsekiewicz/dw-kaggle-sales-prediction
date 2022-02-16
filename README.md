@@ -1,0 +1,1 @@
+Konukrs w ramach Master Class
