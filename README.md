@@ -1,1 +1,1 @@
-Konukrs w ramach Master Class
+https://dataworkshop.eu/
